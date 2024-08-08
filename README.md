@@ -1,4 +1,6 @@
-## Hi there 👋
+## bem vindos ao meu perfil 🌙
+me denominaram de Rafaela e atualmente estou no level 18 de minha vida🧛‍♀️
+gosto de cachorro 🐶
 
 <!--
 **RAFAELABRI3s2024/RAFAELABRI3s2024** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
